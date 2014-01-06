@@ -1,0 +1,13 @@
+body {
+    padding-top: 70px;
+}
+
+iframe {
+    width: 100%;
+    border: none;
+}
+
+.prize {
+    line-height: 40px;
+    font-size: 30px;
+}
