@@ -24,8 +24,5 @@ iframe {
     }
 }
 .fb-like {
-    width: 170px;
     padding-left: 15px;
-    overflow: hidden;
-    height: 40px;
 }
