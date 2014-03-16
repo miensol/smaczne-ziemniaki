@@ -25,10 +25,12 @@ Ziemniaki obieramy, osuszamy. Kroimy na 1 mm maksymalnie 2 mm plasterki, posypuj
 Przepis na frytki jest dobrze znany wszystkim, dlatego zamieszczamy tu tylko pewne rady:
 Smażąc frytki na oleju, należy poczekać aż ten będzie miał bardzo wysoką temperaturę, najlepiej sprawdzić ją  wkładając
 kawałek frytki do garnka: jeżeli od razu wypływa na powierzchnię pieniąc się to znaczy, że olej ma odpowiednią temperaturę.
-Frytki najlepiej wyjmować melatowym sitkiem a nie tzw szumówką, następnie wyłożyć na ręcznik papierowy i dopiero po odsączeniu frytek, włożyć na talerz i posolić. W ten sposób frytki będą znacznie mniej tłuste.
+Frytki najlepiej wyjmować melatowym sitkiem a nie tzw szumówką, nastepnie wyłożyć na ręcznik papierowy i dopiero po odsączeniu frytek, włożyć na talerz i posolić. W ten sposób frytki będą znacznie mniej tłuste.
 Ciekawym dodatkiem do frytek jest ocet winny lub jabłkowy(nigdy nie tradycyjny - biały); dodając kilka kropel octu na gotowe frytki wzmocnimy i urozmaicimy ich pyszny smak!
 * ##[Talarki](#talarki)
-No i talarki tez sa dobre
+Składniki: 1,5 kg ziemniaków, litr oleju, sól, ostra i słodka czerwona papryka, czosnek granulowany, zioła prowansalskie 
+Przygotowanie: 
+Ziemniaki obierany, kroimi na plastry o grubości 0,5-1 cm, posypujemy obficie wymienionymi przyprawami, skrapiamy olejem i zostawiamy na min. godzinę. Po tym czasie wlewamy olej do duzego garnka lub bardzo glebokiej patelni, nagrzewamy do bardzo wysokiej temperatury(którą sprawdzamy władając kawałeczek ziemniaka- jeśli od razu wypłynie na górę pieniąc się, to temperatura jest odpowiednia), wkładamy porcję talarków i smażymy do uzyskania złoto-brązowej barwy. Wykładamy talarki na ręcznik papierowy(po czym do garnka ląduje kolejna porcja talarków) a następnie na miskę, solimy. Smacznego! 
 
 * ##[Zapiekanka](#zapiekanka)
 Cos tam o zapiekance
