@@ -29,10 +29,7 @@ Frytki najlepiej wyjmować melatowym sitkiem a nie tzw szumówką, nastepnie wy�
 Ciekawym dodatkiem do frytek jest ocet winny lub jabłkowy(nigdy nie tradycyjny - biały); dodając kilka kropel octu na gotowe frytki wzmocnimy i urozmaicimy ich pyszny smak!
 * ##[Talarki](#talarki)
   **Składniki:**    
-
 1,5 kg ziemniaków, litr oleju, sól, ostra i słodka czerwona papryka, czosnek granulowany, zioła prowansalskie 
-
-
   **Przygotowanie:**
 Ziemniaki obierany, kroimi na plastry o grubości 0,5-1 cm, posypujemy obficie wymienionymi przyprawami, skrapiamy olejem i zostawiamy na min. godzinę. Po tym czasie wlewamy olej do duzego garnka lub bardzo glebokiej patelni, nagrzewamy do bardzo wysokiej temperatury(którą sprawdzamy władając kawałeczek ziemniaka- jeśli od razu wypłynie na górę pieniąc się, to temperatura jest odpowiednia), wkładamy porcję talarków i smażymy do uzyskania złoto-brązowej barwy. Wykładamy talarki na ręcznik papierowy(po czym do garnka ląduje kolejna porcja talarków) a następnie na miskę, solimy. Smacznego! 
 
@@ -46,7 +43,6 @@ Już wkrótce!
 Sól
 Dodatkowo łyżka mąki pszennej
 Olej
-
 **Przygotowanie:**
 Ziemniaki obierany, trzemy na tarce do ziemniaków, odsączamy nadmiar wody na sitku. Następnie wkładamy do miski, dodajemy rokłócone jajka(rozmieszane wczesniej na głębokim tależu), dodajemy pół łyżeczki soli mieszamy. Na patelni rozgrzewamy cieńką warstwę oleju, nabieramy łyżką stołową masy ziemniaczanej i kładziemy na patelni tak by uzyskać okolo 1cm placka. Jeżeli konsystencja jest bardzo rzadka(masa rozpływa sie po patelni) dodajemy do masy łyżkę mąki i mieszamy. Na paletni powinno być około 5 placków.  Smażymy do uzyskania żółto-złotej barwy, a placki będą chrupiące. Usmażone placki możemy posypać solą i podawać z boczkiem czy skwarkami(na ostro), jak również posmarować kwaśna śmietaną i posypać cukrem (na słodko). Smacznego!
 
